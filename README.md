@@ -5,6 +5,5 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 
-- 📫 How to reach me - +234 8143904374
-  or preciousigbokwe377@gmail.com
+- 📫 How to reach me - preciousigbokwe377@gmail.com
 
